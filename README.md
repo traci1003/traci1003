@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @traci1003
 - 👀 I’m interested in traveling and puzzles
 - 🌱 I’m currently learning to know ways to impact the world
-- 💞️ I’m looking to collaborate on PanicShield and ZenMood
+- 💞️ I’m looking to collaborate on PhishShield and ZenMood
 - 📫 How to reach me traci,davis100399@gmail.com
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I love traveling to places for the best food
